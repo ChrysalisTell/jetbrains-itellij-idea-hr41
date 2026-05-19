@@ -1,4 +1,4 @@
-# 
+# rare Visual Studio para PC scripts é o melhor Visual Studio para PC scripts com rastreamento de problemas e ferramentas de relatórios. Seguro, confiável e otimizado para máximo
 
 
 
